@@ -2,4 +2,4 @@
 
 - 👯 I’m looking to collaborate on ... Any coding related challange.
 - 📫 How to reach me: ... alextran0899@gmail.com
-- ⚡ Fun fact: ... I am loving the new m1 mac. 
+- ⚡ Fun fact: ... I am loving the new M1 Mac. 
