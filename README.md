@@ -1,4 +1,4 @@
-### Hi! I'm Alex! I'm a Full Stack Web Developer who is passionate about simpifying the world through code.
+### Hi! I'm Alex! Developer who is passionate about simpifying the world through code.
 
 - 👯 I’m looking to collaborate on any coding related challange.
 - 📫 How to reach me: alextran0899@gmail.com
